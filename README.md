@@ -9,6 +9,5 @@ IT
 # Mounika
 ## Y19it021
 ## mounikachupuri@gmail.com
-## 9014398844
 ## IT
 ## guntur,chowdavaram
